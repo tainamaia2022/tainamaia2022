@@ -17,3 +17,4 @@ Temos Diversas Espécies De Suculentas
 /user-images.githubusercontent.com/113630942/205115102-410601cd-ef43-4c13-9d4a-bcb7f1aaef42.png)
 
 Valor:9,00 reais cada
+Endereço:Rua Avenida Brasil-Centro, Mandirituba PR
