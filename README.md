@@ -26,3 +26,13 @@ Whatsapp:41-988031217
 Site:www.mini-succulents.com.br
 
 Instagram:mini_succulents
+
+PROMOÇÃO!!
+
+Aqui no Mini suculents a black friday já começou!!
+No mês de dezembro todo o site estará com com 30% de desconto no pix ou dinheiro!
+E 20% no cartão de crèdito.
+
+Mas corre porque a promoção vai durar o mês inteiro,mas o estoque é super limitado!!
+
+    Promoção válida até o dia 26/12/2022
