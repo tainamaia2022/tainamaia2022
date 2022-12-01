@@ -15,7 +15,7 @@ Temos Diversas Espécies De Suculentas
 
 ![image](https:/![image](https://user-images.githubusercontent.com/113630942/205115365-aaa37e58-8b6d-4748-9de5-6c2d2368933f.png)
 
-/user-images.githubusercontent.com/113630942/205115102-410601cd-ef43-4c13-9d4a-bcb7f1aaef42.png)
+
 
 Valor:9,00 reais cada
 
