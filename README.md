@@ -32,6 +32,10 @@ Instagram:mini_succulents
 
 PROMOÇÃO!!
 
+![image](https://user-images.githubusercontent.com/113630942/205133635-e364a89f-d3d5-4715-b13a-2f3073cbb3ac.png)
+
+
+
 Aqui no Mini suculents a black friday já começou!!
 No mês de dezembro todo o site estará com com 30% de desconto no pix ou dinheiro!
 E 20% no cartão de crèdito.
