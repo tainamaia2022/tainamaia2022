@@ -26,8 +26,10 @@ Whatsapp:41-988031217
 Site:www.mini-succulents.com.br
 
 Instagram:mini_succulents
+Aceitamos pix por QR CODE.
 
-Aceitamos pix por QR CODE.![image](https://user-images.githubusercontent.com/113630942/205134939-e7f34a69-222e-46fe-9293-0c7bcc9534f5.png)
+
+![image](https://user-images.githubusercontent.com/113630942/205134939-e7f34a69-222e-46fe-9293-0c7bcc9534f5.png)
 
 
 
