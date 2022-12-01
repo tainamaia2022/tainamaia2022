@@ -26,6 +26,8 @@ Whatsapp:41-988031217
 Site:www.mini-succulents.com.br
 
 Instagram:mini_succulents
+
+
 Aceitamos pix por QR CODE.
 
 
