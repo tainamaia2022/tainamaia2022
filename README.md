@@ -21,7 +21,7 @@ Valor:9,00 reais cada
 
 Endereço:Rua Avenida Brasil-Centro, Mandirituba PR
 
-![image](https://user-images.githubusercontent.com/113630942/205136765-64f61aac-b473-4391-8e45-debcc9ffd542.png) Whatsapp:41-988031217
+Whatsapp:41-988031217
 
 Site:www.mini-succulents.com.br
 
